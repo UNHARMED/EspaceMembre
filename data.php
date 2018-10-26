@@ -1,0 +1,1 @@
+<p>INSCRIPTION REUSSI</p>
